@@ -1,4 +1,4 @@
-# GalinaBoreal
+# Galina Ivanova
 ## About me
 ![](uHuciRvJsb8.jpg)
 > _Something good in everything I see_
